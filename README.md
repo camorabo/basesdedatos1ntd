@@ -1,1 +1,0 @@
-# basesdedatos1ntd
